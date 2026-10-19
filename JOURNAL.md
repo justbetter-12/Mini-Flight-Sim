@@ -55,3 +55,10 @@ Video links: https://youtube.com/shorts/yz59E9Zv_rI?si=Nr6pstNfJEkXi4Mn
 https://youtube.com/shorts/8QfJMCS1kQU?si=xe7UylR1HsQTb3ZI 
 
 **Total time spent: 0h**
+
+# October 18: Made this Journal
+
+I made this project before I knew about Stardance but as soon as I knew about it I wanted to work on it. 
+This journal was a great way for me to learn how to start logging my projects and thank you to Hack Club for putting this on
+
+**Total time spent: 4h**
